@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @singhkaushik
 - 👀 I’m interested in web devploment.
-- 🌱 I’m currently learning in B.Tech Final year with Computer science and Engineering.
+- 🌱 I’m B.Tech qualified with Computer science and Engineering.
 - 💞️ I’m looking to collaborate on web devlopment.
 - 📫 How to reach me twitter- @Kaushiksingh63 ,fb- Kaushik Singh , insta- @singhkaushik28 , linkedin-www.linkedin.com/in/kaushik-singh-b48465196
 
